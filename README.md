@@ -1,1 +1,1 @@
-![](C:/Users/lenovo/OneDrive/Escritorio/1.png)
+![](1.png)
